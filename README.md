@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1332172767495192639/1332524964716220496/GABRIEL_ULTRAKILL_V1_ULTARKILL.jpeg?ex=67959214&is=67944094&hm=01e5fce69d91eb16aca69accc9f16028d422bc8a13b13e293b35864b16dbeedd&=&format=webp&width=982&height=1024)
+![](https://media.discordapp.net/attachments/1332172767495192639/1332573335837737013/ultrakill_1.jpeg?ex=6795bf21&is=67946da1&hm=63141b4275890f3064b2893223b710e6060d845cbf50a4aeff52686edb736169&=&format=webp&width=730&height=1024)
