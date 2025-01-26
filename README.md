@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1332172767495192639/1332579697648734239/Minos__Sisyphus_Prime_Soul_Loafing_ULTRAKILL_Die_Cut_Sticker_Designed_by_Onlineviolence___Woofolotl.jpeg?ex=6795c50e&is=6794738e&hm=eef2653b2cdc8398587cbc70692845afe86ebeb7aacaa97755b5a763b632c29f&=&format=webp&width=1024&height=1024)
+![](https://media.discordapp.net/attachments/1332172767495192639/1332889353588047944/183dac4e-02fa-413b-b716-5f910bb79534.jpeg?ex=6796e571&is=679593f1&hm=b4638407e774750837730a0f48d6d6bf2dd2d5eb02f9b19e388c91f76566142b&=&format=webp&width=720&height=1024)
